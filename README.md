@@ -1,0 +1,1 @@
+# Dictionary-App-Ofline-Version-C64
